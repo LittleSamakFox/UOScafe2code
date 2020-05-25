@@ -19,3 +19,5 @@
 - [네이버](https://store.naver.com/restaurants/detail?id=1481104187)
 
 ### 근황
+
+최근 (20.05.중순)에 다시 오픈을 하였다.
